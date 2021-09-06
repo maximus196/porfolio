@@ -1,1 +1,1 @@
-https://maximus196.github.io/portfolio_/
+https://maximus196.github.io/porfolio/portfolio/
